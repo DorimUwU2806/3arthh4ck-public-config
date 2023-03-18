@@ -1,2 +1,2 @@
 # config
-here is all my public config i found
+here is all my public config i found. enjoy!!!
